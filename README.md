@@ -2,8 +2,8 @@
 
 
 
-- 🔭 I’m currently working on my portfolio
-- 📫 How to reach me: Instagram: moritz_0506
+- 🔭 I’m currently working on my newest Discord Bot Alto Music! 
+- 📫 How to reach me: Discord: Uermann#7485
 
 
 
